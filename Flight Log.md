@@ -1,0 +1,21 @@
+Autumn
+
+# November 2026
+
+Leaves fall, planes rise.
+
+**0**planes this month
+
+**0/0**done today
+
+**0**perfect days in a row
+
+**0**planes all time
+
+Tashkent
+
+New York
+
+0% of the way there this month.
+
+Saved in this browser Tap a box to board a plane. Future days unlock at midnight.
